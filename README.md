@@ -86,7 +86,7 @@ Geomatics · GIS · Surveying Technology · Surveying Instruments · Remote Sens
 
 ## 📫 Connect With Me
 
-- 💼 LinkedIn: [My LinkedIn](YOUR_LINKEDIN_URL)
+- 💼 LinkedIn: [My LinkedIn](https://www.linkedin.com/in/ebtihal-abdalgafar-02940a384?utm_source=share_via&utm_content=profile&utm_medium=member_android)
 - 💻 GitHub: [@Ebtihal03](https://github.com/Ebtihal03)
 
 ---
